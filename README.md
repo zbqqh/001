@@ -1,1 +1,1 @@
-http://zbqqh.github.qh
+http://zbqqh.github/qh
